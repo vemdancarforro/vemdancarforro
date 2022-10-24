@@ -9,3 +9,4 @@
 - 💪 Shape Natural 💪
 - 😘 "Quem me protege não dorme" 💫🔥✊👏👏
 - 🎀 Ezequias 13:23 salmo 43 🎀
+- [e-mail](gabriel.noll@escola.pr.gov.br)
