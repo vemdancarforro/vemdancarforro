@@ -4,3 +4,6 @@
 - 🌱 I’m currently learning plantas
 - observo passaros nas horas vagas
 - apreciador da natureza
+- 22 anos
+- vegano
+- shape natural
