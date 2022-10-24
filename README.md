@@ -1,9 +1,11 @@
-- # Arvore
-- 👋 Hi, I’ms @vemdancarforro
-- 👀 I’m interested in arvores
-- 🌱 I’m currently learning plantas
-- observo passaros nas horas vagas
-- apreciador da natureza
-- 22 anos
-- vegano
-- shape natural
+- # 💥 Quem nao treina nao cresce 💥
+- 👋 Hi, I’ms @vemdancarforro deixa os problema pra la 🐾🐾
+- 👀 Estou interessado em mulheres mais velhas 💏
+- 🌱 Estou lendo sobre plantas 🌴
+- 🙈 Observo passaros nas horas vagas 🙈
+- 🤓 Apreciador da natureza 🤓🌴
+- 😈 22 anos de pura safadezahh 😈😈🤓
+- 💪 Vegan Life 💪
+- 💪 Shape Natural 💪
+- 😘 "Quem me protege não dorme" 💫🔥✊👏👏
+- 🎀 Ezequias 13:23 salmo 43 🎀
